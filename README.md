@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AKOLAWOLE112
+- 👋 Hi, I’m @kolawole
 - 👀 I’m interested in ... learning new things
 - 🌱 I’m currently learning ... and keep learning 
 - 💞️ I’m looking to collaborate on ... knowing more 
